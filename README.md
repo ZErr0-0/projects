@@ -1,2 +1,2 @@
 # Система тестирования
-![image](https://github.com/user-attachments/assets/37586d0c-5b3b-4c2b-9cad-3f770b3c90f9)
+![9](https://github.com/user-attachments/assets/083ce74d-4ea9-45e2-9db4-48011c6146bf)
